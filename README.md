@@ -1,7 +1,6 @@
 </p><p align="center">
-  <img src="https://files.catbox.moe/5ppndx.png" width="725"/>
+  <img src="https://files.catbox.moe/5ppndx.png" width="595"/>
 </p>
-
 <p align="center">
   <a href=""><strong>A fake smile is fake but a real smile is real because it consists of real happiness.
 </p></strong></a>
