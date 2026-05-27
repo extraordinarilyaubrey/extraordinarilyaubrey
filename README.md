@@ -14,12 +14,12 @@
 
 </p>
 <p align="center">
-  ⁔⁔     ↷  @ aubrey   /   charlotte     .     ambivert  ,,  emuKIN 
+  ⁔⁔     ↷  @ aubrey   /   sono  /  charlotte     .     ambivert  ,,  minoriKIN 
 </p>
 
 </p>
 <p align="center">
-      ‿‿    —    ⌈a bit dry⌋    ;;      11teen   ☆    she/her  ←
+      ‿‿    —    ⌈a bit dry⌋    ;;      12ve   ☆    she/her  ←
 </p>
 <p align="center">
   <a href=""><strong>  ←  check other links for more info (at the bottom of my profile bio)
