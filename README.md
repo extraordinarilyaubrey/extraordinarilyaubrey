@@ -1,5 +1,5 @@
 </p><p align="center">
-  ![image alt](https://github.com/user-attachments/assets/69d2a9eb-bf48-4ba1-925a-1f17d6e3315a)
+  ![image alt](https://files.catbox.moe/x7ivvz.png)
 </p><p align="center">
   <img src="https://gifs.crd.co/assets/images/gallery09/c6faf46e_original.png?v=ef433a6f" width="595"/>
 </p>
