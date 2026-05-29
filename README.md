@@ -19,7 +19,7 @@
 
 </p>
 <p align="center">
-      ‿‿    —    ⌈a bit dry⌋    ;;      12ve   ☆    she/her  ←
+      ‿‿    —    ⌈dry but clingy⌋    ;;      12ve   ☆    she/her/they/them  ←
 </p>
 <p align="center">
   <a href=""><strong>  ←  check other links for more info (at the bottom of my profile bio)
