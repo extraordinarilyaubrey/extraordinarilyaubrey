@@ -2,7 +2,7 @@
 
   ![image alt](https://github.com/HANASATOMINORIDESU/HANASATOMINORIDESU/blob/e1ef7018e21afc46ca87d5985ea9394780fa2660/Untitled9_20260529093059.png)
 </p><p align="center">
-  <img src="https://yokai.crd.co/assets/images/image04.png?v=b4df531c" width="595"/>
+  <img src="https://gifs4crds.carrd.co/assets/images/image10.gif?vca07fc73a" width="595"/>
 </p>
 <p align="center">
   <a href=""><strong>More and more! Even moooore! In order to deliver hope to everyone!
@@ -29,7 +29,7 @@
   <img src="https://yokai.crd.co/assets/images/image51.gif?v=b4df531c" width="595"/>
 </p>
 <p align="center">
-  <img src="https://yokai.crd.co/assets/images/gallery25/4ac2013e.gif?v=b4df531c" width="120"><br>
+  <img src="https://gifs4crds.carrd.co/assets/images/gallery08/3af19898.gif?vca07fc73a" width="120"><br>
   <strong>Hakushon...!</strong>
 </p>
 
