@@ -1,6 +1,5 @@
 </p><p align="center">
-  <img src="https://files.catbox.moe/x7ivvz.png" width="595"/>
-</p>
+  <img src=<img width="3000" height="3000" alt="Untitled9_20260529093059" src="https://github.com/user-attachments/assets/69d2a9eb-bf48-4ba1-925a-1f17d6e3315a" />
 </p><p align="center">
   <img src="https://gifs.crd.co/assets/images/gallery09/c6faf46e_original.png?v=ef433a6f" width="595"/>
 </p>
