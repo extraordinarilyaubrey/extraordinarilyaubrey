@@ -5,7 +5,7 @@
   <img src="https://gifs.crd.co/assets/images/gallery09/c6faf46e_original.png?v=ef433a6f" width="595"/>
 </p>
 <p align="center">
-  <a href=""><strong>A fake smile is fake but a real smile is real because it consists of real happiness.
+  <a href=""><strong>More and more! Even moooore! In order to deliver hope to everyone!
 </p></strong></a>
 </p>
 </p><p align="center">
@@ -30,7 +30,7 @@
 </p>
 <p align="center">
   <img src="https://yokai.crd.co/assets/images/gallery25/4ac2013e.gif?v=b4df531c" width="120"><br>
-  <strong>Emu means........ Smile!</strong>
+  <strong>Hakushon...!</strong>
 </p>
 
 
